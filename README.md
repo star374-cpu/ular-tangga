@@ -1,2 +1,0 @@
-# ular-tangga
-hailow
